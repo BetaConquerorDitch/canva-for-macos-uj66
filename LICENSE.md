@@ -1,4 +1,4 @@
-
+Canva for macOS new Brush Pack - AI-assisted design and vector tools offers the most advanced Canva for macOS brush, with AI-assisted design and vector tools. Ideal for
 
 
 
